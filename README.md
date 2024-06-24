@@ -13,6 +13,7 @@
 - Fresh parsley, chopped (optional, for garnish)
 
 ![Spaghetti Carbonara](https://media.istockphoto.com/id/811250722/photo/cooking-ingredients-for-italian-food-carbonara-isolated-on-white.webp?b=1&s=170667a&w=0&k=20&c=gZJSYRR5mtyZy3_jKVf-8BZmLcrHzS3MbimlhPYVwmI=)
+
 *Spaghetti Carbonara - A classic Italian dish.*
 
 # Instruction for Spaghetti Carbonara
@@ -33,6 +34,8 @@ Combine Ingredients
 - Divide the pasta among plates or bowls. Garnish with additional grated cheese, more black pepper, and chopped parsley if desired. Serve immediately.
 
 ![Delicious Spaghetti Carbonara ready to be served.](https://media.istockphoto.com/id/177413384/photo/pasta-with-carbonara.webp?b=1&s=170667a&w=0&k=20&c=o93CBvauiDmKWqFXf2JZMgapGwIvSg-0-i9TGBJ3ULE=)
+
+*Spaghetti Carbonara - Instruction*
 ## Contact Information
 
 **Address:**

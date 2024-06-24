@@ -8,4 +8,19 @@
 - 2 cloves garlic, peeled and left whole
 - Salt and black pepper to taste
 - Fresh parsley, chopped (optional, for garnish)
-[!https://www.istockphoto.com/se/foto/matlagning-ingredienser-f%C3%B6r-italiensk-mat-carbonara-isolerade-p%C3%A5-vit-gm811250722-131265385?utm_campaign=srp_photos_top&utm_content=https%3A%2F%2Funsplash.com%2Fs%2Fphotos%2Fcabonara-ingredients&utm_medium=affiliate&utm_source=unsplash&utm_term=cabonara+ingredients%3A%3A%3A
+
+![Spaghetti Carbonara](https://media.istockphoto.com/id/811250722/photo/cooking-ingredients-for-italian-food-carbonara-isolated-on-white.webp?b=1&s=170667a&w=0&k=20&c=gZJSYRR5mtyZy3_jKVf-8BZmLcrHzS3MbimlhPYVwmI=)
+
+*Spaghetti Carbonara - A classic Italian dish.*
+
+## Contact Information
+
+**Address:**
+123 Main Street  
+Anytown, Sweden 12345
+
+**Email:**  
+info@company.com
+
+**Phone:**  
++1 (234) 567-890

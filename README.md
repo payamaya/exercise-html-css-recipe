@@ -13,7 +13,6 @@
 - Fresh parsley, chopped (optional, for garnish)
 
 ![Spaghetti Carbonara](https://media.istockphoto.com/id/811250722/photo/cooking-ingredients-for-italian-food-carbonara-isolated-on-white.webp?b=1&s=170667a&w=0&k=20&c=gZJSYRR5mtyZy3_jKVf-8BZmLcrHzS3MbimlhPYVwmI=)
-
 *Spaghetti Carbonara - A classic Italian dish.*
 
 # Instruction for Spaghetti Carbonara
